@@ -3,7 +3,7 @@
 🎯 **Data Engineer | Machine Learning Enthusiast | Cloud Practitioner**  
 📍 Based in New York | Open to Global Opportunities  
 📧 [shubhammandora220800@gmail.com](mailto:shubhammandora220800@gmail.com) | 📞 +1 (559) 387-7883  
-🔗 [LinkedIn](https://www.linkedin.com/in/shubhamm2208) | 🧠 [GitHub](https://github.com/SMMandora)
+🔗 [LinkedIn](https://www.linkedin.com/in/shubhamm2208) |
 
 ---
 
