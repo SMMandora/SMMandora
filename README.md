@@ -1,6 +1,6 @@
 # Hi there, I'm Shubham Mandora 👋
 
-🎯 **Data Engineer | Machine Learning Enthusiast | Cloud Practitioner**  
+🎯 **Data Engineer | Machine Learning Enthusiast**  
 📍 Based in New York | Open to Global Opportunities  
 📧 [shubhammandora220800@gmail.com](mailto:shubhammandora220800@gmail.com) | 📞 +1 (559) 387-7883  
 🔗 [LinkedIn](https://www.linkedin.com/in/shubhamm2208) |
